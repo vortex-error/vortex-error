@@ -1,5 +1,3 @@
-<img width="735" height="411" alt="3989" src="https://github.com/user-attachments/assets/16119a1d-4f1f-456a-8f91-1fffe62ffc3a" />
-
 
 <img width="1271" height="100" alt="3988" src="https://github.com/user-attachments/assets/d51bbb66-947d-4da4-a15f-9b8ebe9a97be" />
 
@@ -9,6 +7,10 @@
 
 
 ᴄ̛̜͋̏͋̍̍ᴀ̤̩̖̓́̋̀ɴ̹͈̜̇͋̋́ ᴀ̤̖̗̤͒̈́̀ ᴠ͈̹̈́̔̓̇͋ɪ́̒̀̍̒̈́̓ʟ̜̩̦́̔̀̋ʟ̦̀̒́͋̀́ᴀ̛̗̖̒̀ɪ̤̹́̓́̓ɴ̤̹̒̒́́ ᴛ́̀̈́̍̇̈́̓́̋̕ʀ̒̏̀̀̐̒͒̏ᴜ̗̍̏̒́̏̍ʟ̖͋̓̈͒̐̕ʏ̦̀̀̔̈́̔̕ ᴄ̔̋̓́̇̈́̐̀̕ʜ̩͋̎́̋́ᴀ̤̀̔̏̏́͒̏ɴ͈̣̦̋̓̋̍̇ɢ̦̗̩̇́̍̀ᴇ̖̜̈́̔́̕‽
+
+
+<img width="512" height="48" alt="3992" src="https://github.com/user-attachments/assets/acf200ab-ae30-4a7c-9b2e-4d6ddcdf743e" />
+
 
 
 
